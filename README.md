@@ -1,7 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=xyrvielle&label=♱&color=6e0f2d&style=plastic)
-
 <br>
-
 <p align="center">
 ʟᴜᴄɪᴇʟ ᴀᴋᴀ ꜱxᴘʜʏʀɪɴ . 8ᴛᴇᴇɴ . ꜱʜᴇ/ʜᴇʀ
 <br>
