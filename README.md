@@ -1,13 +1,20 @@
-![](https://komarev.com/ghpvc/?username=sxphyrin&label=♥&color=2bb800&style=plastic)
+![](https://komarev.com/ghpvc/?username=xyrvielle&label=♱&color=6e0f2d&style=plastic)
 
-<p align="center">
-<img src=https://i.pinimg.com/736x/e6/4a/9e/e64a9ef984cfe6c564492005821c1008.jpg>
-</p>
 
+<img src="https://64.media.tumblr.com/1617282cd107abb389be27cf48ac0937/b26e6931782821b0-34/s2048x3072/12f454867723bed4117f5ca61bec59d744f1a716.pnj" width="300" align="right">
 <br>
-
-<p align="center">
-i lied i aint fixing my layout.. come c+h ! im not scary, just socially awkward 💔
 <br>
-do not copy/inspo my skins UNLESS friends. i am not comfortable being mistaken as someone.
+<br>
+<p align="center">
+ʟᴜᴄɪᴇʟ ᴀᴋᴀ ꜱxᴘʜʏʀɪɴ . 8ᴛᴇᴇɴ . ꜱʜᴇ/ʜᴇʀ
+<br>
+ᴄ+ʜ ɪꜱ ᴇɴᴄᴏᴜʀᴀɢᴇᴅ! ᴀʟᴡᴀʏꜱ ᴡ2ɪ. (ʙʟɪɴᴅ ᴛᴏ ᴘᴜʙʟɪᴄ ᴄʜᴀᴛ)
+<br>
+ᴅᴏ ɴᴏᴛ ᴄᴏᴘʏ/ɪɴᴘᴏ ᴜɴʟᴇꜱꜱ ꜰʀɪᴇɴᴅꜱ . ɪ ᴅɪꜱʟɪᴋᴇ ʙᴇɪɴɢ ᴍɪꜱᴛᴀᴋᴇɴ ꜰᴏʀ ꜱᴏᴍᴇᴏɴᴇ.
+<br>
+ʙᴀꜱɪᴄ ᴅɴɪ . 15- ɪᴡᴄ . ꜱʜɪᴘꜱ ᴀɴᴅ ʀᴏʟᴇᴘʟᴀʏ ᴅɴɪᴜꜰ.
+
+
+
 </p>
+<br clear="right">
